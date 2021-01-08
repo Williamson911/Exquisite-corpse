@@ -15,3 +15,6 @@ In his dreams, he imagines himself to be the king of pirates, admired by his own
 When he woke up, he was very sad to realize that nothing was true.
 
 He was just a little boy.
+
+![cat](https://i.pinimg.com/originals/70/e6/13/70e613379120b7a263b86e4aa2b59c9d.gif)
+
