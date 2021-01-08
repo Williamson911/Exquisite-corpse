@@ -18,3 +18,5 @@ He was just a little boy.
 
 ![cat](https://i.pinimg.com/originals/70/e6/13/70e613379120b7a263b86e4aa2b59c9d.gif)
 
+
+C'est à ce moment là que le vaisseau Interprise fit son apparission et emporta Gus dans un univers parallèle afin d'essayer de le sauver si cela est encore possible...
