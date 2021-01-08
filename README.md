@@ -9,3 +9,9 @@ He thinks "this looks a little too much like my favourite game 'Kingdom Hearts' 
 The most logical thing that comes up to his mind is to come back home and try sailing another day.
 </br>
 So he gets back home, eat a good meal and goes to bed.
+
+In his dreams, he imagines himself to be the king of pirates, admired by his own and feared by others. 
+
+When he woke up, he was very sad to realize that nothing was true.
+
+He was just a little boy.
